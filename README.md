@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Tim Victor. I'm a hobbyist in Greensboro, North Carolina, USA.
+- 👀 I’m interested in a variety of electronic and computer technologies.
